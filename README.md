@@ -1,2 +1,0 @@
-# SELF-MADE
-THAT*PART
